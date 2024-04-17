@@ -1,0 +1,1 @@
+hello im form  simple-interest.sh file hope the following days will be good to u
